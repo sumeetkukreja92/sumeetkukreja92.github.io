@@ -1,1 +1,1 @@
-#Resume Website for Sumeet Kukreja
+Resume Website for Sumeet Kukreja
